@@ -37,7 +37,7 @@
 ![Screenshot 2024-12-11 093705](https://github.com/user-attachments/assets/df97014e-97ad-4480-88ca-eba46ede4ba3)
 
 
-### Name: Dhsrahan V
+### Name: Dhasrhan V
 ### Register Number: 24900465
 
 ## RESULT:
